@@ -1,1 +1,1 @@
-# 👋 zuralski.net
+# 👋 [zuralski.net](https://zuralski.net/)
